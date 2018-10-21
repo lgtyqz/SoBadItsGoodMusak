@@ -53,3 +53,35 @@ Full list of sources:
 - The Weeknd - Can't Feel My Face ℗ 2015 The Weeknd XO, Inc. Manufactured and Marketed by Republic Records, a Division of UMG Recordings, Inc.
 - Capital Cities - Safe And Sound ℗ 2011 Lazy Hooks, LLC Under Exclusive License To Capitol Records, LLC
 - Daft Punk ft. Pharrell Williams & Nile Rodgers - Get Lucky ℗ 2013 Daft Life Limited under exclusive license to Columbia Records, a Division of Sony Music Entertainment
+17. Rigor Versace
+- Laura Shigihara - Rigor Mormist
+- Migos - Versace ℗ 2013 Quality Control Music
+18. Brainiac Maniac
+- Tay Zonday - Chocolate Rain
+- Laura Shigihara - Brainiac Maniac
+19. Sonny Caillou John More
+- Skrillex - First Of The Year (Equinox) ℗ 2011 Big Beat Records, Inc. for the United States and WEA International for the world outside the United States.
+- Jeff Zahn ft. Bryn McAuley - Theme Song from "Caillou"
+20. Thanks, Wikipedia
+**breathes in** oh boy.
+- Journey - Don't Stop Believin' ℗ 1981 Columbia Records, a division of Sony Music Entertainment
+- Gorillaz - On Melancholy Hill ℗ 2010 Parlophone Records Ltd, a Warner Music Group Company
+- Lady Gaga - Poker Face ℗ 2008 Interscope Records
+- Kelly Clarkson - Stronger (What Doesn't Kill You) ℗ 2011 19 Recordings Limited under exclusive license to RCA Records
+- Coldplay - Viva La Vida ℗ 2008 Parlophone Records Ltd, a Warner Music Group Company
+- Train - Hey, Soul Sister ℗ 2009 Columbia Records, a division of Sony Music Entertainment
+21. Graze the Roof
+- TheFatRat - Monody (Remix for Rolling Sky)
+- Laura Shigihara - Graze the Roof
+22. Potential for Anything
+- Toby Fox - Another Medium ℗ Toby Fox under license to Materia Collective
+- Magnus Pålsson - Potential for Anything ℗ 2010 Souleye
+23. Focus - Super Hexagon
+- Chipzel - Focus ℗ 2012 Chipzel
+- Daisuke Amaya - Running Hell
+- Max Coveri - Running in the 90's ℗ Delta Music Industry
+24. Momentum Mori
+- Chipzel - Courtesy ℗ 2012 Chipzel
+- LMFAO - Sexy And I Know It ℗ 2011 Foo & Blu, LLC, under exclusive License to Interscope Records
+    - (interestingly enough, these two songs have the same BPM.)
+- Danny Baranowsky - Momentum Mori
