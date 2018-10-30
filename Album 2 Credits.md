@@ -36,3 +36,21 @@ Full List of Sources:
 10. Drankenstein
 - Lil Uzi Vert - XO TOUR Llif3 ℗ 2017 Atlantic Recording Corporation
 11. Banging & Piercing a 7 Year Old
+- Lukas Graham - Seven Years ℗ 2015 Warner Bros. Records Inc.
+- Magnus Pålsson - Piercing the Sky ℗ 2012 Souleye
+- Skrillex ft. Sirah - Bangarang ℗ 2012 Atlantic Recording Corporation For the United States and WEA International Inc. for the world outside of the United States.
+12. Evolution of Rap
+(the second oh boy.)
+- Justice - D.A.N.C.E. ℗ 2007 Ed Bangers Music under exclusive license with Because Music for France/UK/Eire and Warner Music for the world outside France/UK/Eire.
+- The Sugarhill Gang - Rapper's Delight ℗ 1979 Sugar Hill Records, a label of Rhino Entertainment
+- Sir Mix-a-Lot - Baby Got Back ℗ Firefly
+- NWA - Straight Outta Compton ℗ 1988 Priority Records LLC
+- 2pac ft. Outlawz - Hit 'Em Up ℗ 1996 Death Row Records
+- Snoop Dogg ft. Pharrell Williams - Drop It Like It's Hot ℗ 2008 Geffen Records and Snoopadelic Records LLC
+- Lil Pump - Esskeetit ℗ 2018 Tha Lights Global/Warner Bros. Records Inc.
+13. Thanks, Wikipedia 2
+- Luis Fonsi ft. Daddy Yankee - Despacito ℗ 2017 Universal Music Latino
+- Daft Punk - Contact ℗ 2013 Daft Life Limited under exclusive license to Columbia Records, a Division of Sony Music Entertainment
+- Pitbull ft. Ne-Yo, Afrojack, Nayer - Give Me Everything Tonight ℗ 2011 J Records, a unit of Sony Music Entertainment
+- Toto - Africa ℗ 1982 Columbia Records, a division of Sony Music Entertainment
+- The Script ft. will.i.am - Hall of Fame ℗ 2012 Sony Music Entertainment UK Limited
