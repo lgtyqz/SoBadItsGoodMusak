@@ -25,3 +25,14 @@ Full List of Sources:
 - Máni Svavarsson and Stefán Karl Stefánsson - We Are Number One
 - Clint Mansell - Lux Aeterna ℗ 2000 Nonesuch Records Inc. for the United States and WEA International Inc. for the world outside the United States.
 8. Counting Stars - Super Gentleman 64
+- OneRepublic - Counting Stars ℗ 2013 Mosley Music/Interscope Records
+- Psy - Gentleman © Schoolboy/Universal Republic Records, a division of UMG Recordings, Inc.
+- Psy - Gangnam Style ℗ 2012 Schoolboy Records / Universal Republic Records a division of UMG Recordings, Inc..
+- Ylvis - The Fox (What Does The Fox Say?) ℗ 2013 Urheim Recods and 45th & 3rd Music LLC under exclusive license to Parlophone Music Norway A Warner Music Group Company
+9. Above All The Shooting Stars (ft. E.S.K.E.T.I.T.)
+- HOME - Above All
+- Bag Raiders - Shooting Stars ℗ 2009 Bang Gang 12s, under exclusive license to Modular Recordings
+- Lil Pump - Esskeetit ℗ 2018 Tha Lights Global/Warner Bros. Records Inc.
+10. Drankenstein
+- Lil Uzi Vert - XO TOUR Llif3 ℗ 2017 Atlantic Recording Corporation
+11. Banging & Piercing a 7 Year Old
